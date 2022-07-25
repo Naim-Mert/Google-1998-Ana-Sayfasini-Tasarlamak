@@ -1,1 +1,1 @@
-# Google-1998-Ana-Sayfas-n-Tasarlamak
+# Google-1998-Ana-Sayfasini-Tasarlamak
